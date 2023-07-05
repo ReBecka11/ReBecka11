@@ -8,4 +8,4 @@ Com vasta experiência na área administrativa e forte potencial em atividades d
 
 A procura de estágio em análise de dados, business intelligence e/ou automações de processos para adquirir conhecimento e experiência ou recolocação na aréa administrativa.
 
-https://www.linkedin.com/in/rebeca-caroline-souza-da-silva-bb9271227/
+https://www.linkedin.com/in/rebeca-caroline-souza-da-fonseca-bb9271227/
